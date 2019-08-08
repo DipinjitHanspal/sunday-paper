@@ -1,6 +1,6 @@
 # 🗞️ Sunday Paper
-Unwind with your procured reading list each Sunday, picked by you! 
+Unwind with your procured reading list each Sunday, picked by you
 
-Only catch? No bars.
+Only catch? No WiFi!
 
-One hour of you-time, each Sunday!
+One hour of you-time, each Sunday
